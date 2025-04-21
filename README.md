@@ -26,9 +26,10 @@
 
 ![](https://64.media.tumblr.com/40f2ca191a65eb7e442d0a9fbb7421c8/53c63562d41d61eb-e0/s2048x3072/007b67caeb290c012d28e2c73fe75d4308aef683.pnj)
 
-★   ︵   @  **Leo**
+![](https://media.discordapp.net/attachments/1046492856833032202/1363995144780775485/where_1.png?ex=68080ef8&is=6806bd78&hm=ab62ea83707b704ff29095badcc0ac639450e177d0364aa1e1272961e19c55ad&=&format=webp&quality=lossless)![](https://media.discordapp.net/attachments/1046492856833032202/1363995144780775485/where_1.png?ex=68080ef8&is=6806bd78&hm=ab62ea83707b704ff29095badcc0ac639450e177d0364aa1e1272961e19c55ad&=&format=webp&quality=lossless)![](https://media.discordapp.net/attachments/1046492856833032202/1363995144780775485/where_1.png?ex=68080ef8&is=6806bd78&hm=ab62ea83707b704ff29095badcc0ac639450e177d0364aa1e1272961e19c55ad&=&format=webp&quality=lossless) ★   ︵   @  **Leo**
 
-6**teen**  ⟢   🐻
-౨    text   !
+![](https://media.discordapp.net/attachments/1046492856833032202/1363995144780775485/where_1.png?ex=68080ef8&is=6806bd78&hm=ab62ea83707b704ff29095badcc0ac639450e177d0364aa1e1272961e19c55ad&=&format=webp&quality=lossless)![](https://media.discordapp.net/attachments/1046492856833032202/1363995144780775485/where_1.png?ex=68080ef8&is=6806bd78&hm=ab62ea83707b704ff29095badcc0ac639450e177d0364aa1e1272961e19c55ad&=&format=webp&quality=lossless) 6**teen**  ⟢   🐻
 
-:: search up 'dreamytwice' for more combos! <3.
+![](https://media.discordapp.net/attachments/1046492856833032202/1363995144780775485/where_1.png?ex=68080ef8&is=6806bd78&hm=ab62ea83707b704ff29095badcc0ac639450e177d0364aa1e1272961e19c55ad&=&format=webp&quality=lossless) ౨    he him   !
+
+:: We have a discord server for the Hetalia ponytown area ! [click here <3](https://discord.gg/aR3DgE7BY9)
