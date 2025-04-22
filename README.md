@@ -32,4 +32,6 @@
 
 ![](https://media.discordapp.net/attachments/1046492856833032202/1363995144780775485/where_1.png?ex=68080ef8&is=6806bd78&hm=ab62ea83707b704ff29095badcc0ac639450e177d0364aa1e1272961e19c55ad&=&format=webp&quality=lossless) ౨    he him   !
 
-:: We have a discord server for the Hetalia ponytown area ! [click here <3](https://discord.gg/aR3DgE7BY9)
+:: Owner of Hetalia Ponytown server ! [invite link <3](https://discord.gg/aR3DgE7BY9)
+
+![](https://64.media.tumblr.com/04e8f26be0acce0ecd7ab95b14cce789/193d7de09f20436e-e9/s2048x3072/2eebcb1eaf738b1005761e77ba6216571a5ce97a.pnj)
